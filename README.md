@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Temmy2021
-- 👀 I’m interested in hackimg
+- 👀 I’m interested in hacking
 - 🌱 I’m currently learning computer 
 - 💞️ I’m looking to collaborate on hacking 
 - 📫 How to reach me via email ibidapotemitope7@gmail.com
